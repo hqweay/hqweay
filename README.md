@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-😐 I was okay at talking nonsense but now i am extremely bad at it.
+I was okay at talking nonsense but now i am extremely bad at it.
