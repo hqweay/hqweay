@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I was okay at talking nonsense but now i am extremely bad at it.
+Do what you love, Be someone you're curious about.
