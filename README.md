@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Do what you love, Be someone you're curious about.
+充满热情，放低期待。自由思考，勇敢生存。
